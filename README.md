@@ -1,4 +1,4 @@
-### Consistency 👋
+### Consistency 🏃🏻‍♂️
 
 <!--
 **junnpp/junnpp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
