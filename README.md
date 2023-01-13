@@ -1,4 +1,4 @@
-## About Myself
+## About Me
 
 🙋🏻‍♂️ Hi. I'm Jun
 
